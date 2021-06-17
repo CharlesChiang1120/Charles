@@ -1,5 +1,4 @@
 ### Hello there, I'm Charles 👋
-- 🎓 I am studying for a master's degree.
 
 ---
 
